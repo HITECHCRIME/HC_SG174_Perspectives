@@ -40,4 +40,38 @@ Description.
 
 ## Notes
 
+HC_SG174_Perspectives
+
+Chant rap type prototype. Posting it here for safekeeping really.
+Thank you for sticking with me Agents.
+
+Lyrics in progress, for now structural design coming together.
+
+look look look
+look really look
+look look look
+
+look really look at your trails of cause
+make sure of the specs
+what you got at stake in effect
+bouncing mirror’s light
+not shook with your words of dose
+
+shining bright at your own demise
+tanting shivers me inside, but not hate
+it’s the sadness of your state
+that you need to call upon
+marks of other’s progress
+in you midst so glistening to the ones
+you need to listen to so closely
+
+could omit saying don’t x3
+it’s my sacrifice, sacrifice x2
+
+this is not taking me through
+to the other side to rot with you
+sacrifice, sacrifice
+
+#trap #trapmusic #trapcore #trap #metal
+
 ## Music Video
